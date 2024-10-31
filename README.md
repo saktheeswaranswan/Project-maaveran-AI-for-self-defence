@@ -14,3 +14,8 @@ https://www.youtube.com/watch?v=AEPuyIGiakg
 
 
 https://www.youtube.com/watch?v=AEPuyIGiakg
+
+Bone conditioning with food
+
+
+https://www.youtube.com/watch?v=pKLBMN-HOzA
